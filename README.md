@@ -1,0 +1,1 @@
+Dawid Brożyna 42719 dawid.brozyna@studenci.collegiumwitelona.pl
